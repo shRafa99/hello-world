@@ -1,2 +1,2 @@
-# hello-world
-This is my hello, world!
+# Hi!
+This is my school account, my main account is: 
